@@ -1,1 +1,1 @@
-certificaciones-lmo/AICP-2025-LX0942.html
+<html><body>Certificado en construcción...</body></html>
